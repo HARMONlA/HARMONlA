@@ -26,3 +26,6 @@ i troll or roleplay jokingly
 basic dni criteria
  <p align="center">
 again, if i dont like u i just hide or block o.o whether explanation as to why is provided or not
+
+<p align="center">
+<img width="200" height="200" alt="IMG_0615" src="https://github.com/user-attachments/assets/26ebfd4d-e3a7-4f5f-bd03-425cf2063d25" />
