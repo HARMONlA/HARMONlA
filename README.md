@@ -27,6 +27,8 @@ i troll or roleplay jokingly
 <img width="110" height="85" alt="Untitled25_20260430230914" src="https://github.com/user-attachments/assets/8c3181ed-21b2-4ae9-89c2-7a1824251ab1" />
 basic dni criteria
  <p align="center">
+  below 13, over 20
+ <p align="center">
 again, if i dont like u i just hide or block o.o whether explanation as to why is provided or not
  <p align="center">
   -----------------------------
