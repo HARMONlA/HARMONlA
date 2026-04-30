@@ -14,3 +14,7 @@
 i hide n block freely, i always have my reasons thooo
 <p align="center">
 sometimes im awkward and too shy to int first.. but do not let this deter u! plz talk to me!
+<p align="center">
+i can be either very esctatic or sorta dry ITS USUALLY NOT PERSONAL 
+<p align="center">
+i say slurs i can reclaim, and i also make sometimes mean or sexual jokes
