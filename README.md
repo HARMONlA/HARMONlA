@@ -5,7 +5,10 @@
 </p>
 
 <p align="center">
-  𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 - resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, harry potter, yttd, jjk, csm, pokemon, jjba, bllk, hells paradise, theres others these r main ones!
+
+  𝙗𝙖𝙨𝙞c - my name is mio, im 16, seasian, and im fluent in english!!
+  
+  𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 - resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, harry potter, yttd, jjk, csm, pokemon, jjba, bllk, hells paradise, witch hat atelier, creepypasta, theres others these r main ones!
 </p>
 
 :i hide n block freely, s
