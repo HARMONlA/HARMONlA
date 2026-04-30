@@ -1,6 +1,7 @@
 <img width="2266" height="1488" alt="Untitled22_20260430223627" src="https://github.com/user-attachments/assets/7f06df3b-2476-42fe-b823-3f6147ae02e5" />
 <p align="center">
-  <img width="150" height="125" alt="Untitled25_20260430230925" src="https://github.com/user-attachments/assets/b058b4ea-<p align="center">-4ffe-9498-f5eef6d72992" />
+ <img width="150" height="125" alt="Untitled24_20260430223541" src="https://github.com/user-attachments/assets/12d08ab6-af44-4988-b9e7-d8790bfdeed4" />
+
 <p align="center">
   𝙗𝙖𝙨𝙞𝙘 - if u havent caught on my name is mio LOL, im 16, seasian, demiromantic, and i use sheher pronounce ^.^ oh and uhh intp (TiNe) ili 5w4 541 sx/sp RcuaA/i/ phleg-mel 
 
