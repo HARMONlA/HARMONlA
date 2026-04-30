@@ -13,10 +13,10 @@
 <p align="center">
 i hide n block freely, i always have my reasons thooo
 <p align="center">
-sometimes im awkward and too shy to int first.. but do not let this deter u! plz talk to me!
+sometimes im awkward and too shy to int first so sorry if i come off boring.. but do not let this deter u! plz talk to me! 
 <p align="center">
-i can be either very esctatic or sorta dry ITS USUALLY NOT PERSONAL 
+i can be either very esctatic or rlly dry randomly ITS USUALLY NOT PERSONAL 
 <p align="center">
-i say slurs i can reclaim, and i also make sometimes mean or sexual jokes
+i say slurs i can reclaim, i also make sometimes mean or sexual jokes, and typically very sarcastic
 <p align="center">
 i troll or roleplay jokingly 
