@@ -3,7 +3,7 @@
  <img width="150" height="125" alt="Untitled24_20260430223541" src="https://github.com/user-attachments/assets/12d08ab6-af44-4988-b9e7-d8790bfdeed4" />
 
 <p align="center">
-  𝙗𝙖𝙨𝙞𝙘 - if u havent caught on my name is mio LOL, im 16, seasian, demiromantic, and i use sheher pronounce ^.^ oh and uhh intp (TiNe) ili 5w4 541 sx/sp RcuaA/i/ phleg-mel 
+  𝙗𝙖𝙨𝙞𝙘 - if u havent caught on my name is mio LOL, im 16, seasian, demiromantic, and i use sheher pronounce ^.^ oh and uhh intp (TiNe) ili 5w4 541 sx/sp RcuaA/i/ phleg-mel and uhhu im a N yume if u cant tell heh ok 
 
 <p align="center">
   𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 - resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, harry potter, yttd, jjk, csm, pokemon, jjba, bllk, hells paradise, witch hat atelier, creepypasta, theres others these r the ones i remember rn
@@ -18,3 +18,5 @@ sometimes im awkward and too shy to int first.. but do not let this deter u! plz
 i can be either very esctatic or sorta dry ITS USUALLY NOT PERSONAL 
 <p align="center">
 i say slurs i can reclaim, and i also make sometimes mean or sexual jokes
+<p align="center">
+i troll or roleplay jokingly 
