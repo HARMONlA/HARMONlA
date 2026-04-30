@@ -22,4 +22,4 @@ i troll or roleplay jokingly
 
 <p align="center">
 <img width="110" height="85" alt="Untitled25_20260430230914" src="https://github.com/user-attachments/assets/8c3181ed-21b2-4ae9-89c2-7a1824251ab1" />
-basic dni (criteria)[https://basicdnii.carrd.co/#]
+basic dni [criteria](https://basicdnii.carrd.co/#)
