@@ -12,3 +12,5 @@
 <img width="110" height="85" alt="Untitled25_20260430230821" src="https://github.com/user-attachments/assets/a4988d6b-168b-47d3-ad9a-95a9f7c7004d" />
 <p align="center">
 i hide n block freely, i always have my reasons thooo
+<p align="center">
+sometimes im awkward and too shy to int first.. but do not let this deter u! plz talk to me!
