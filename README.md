@@ -5,9 +5,8 @@
 </p>
 
 <p align="center">
-
-  𝙗𝙖𝙨𝙞c - my name is mio, im 16, seasian, and im fluent in english!!
-  
+  𝙗𝙖𝙨𝙞𝙘 - if u havent caught on my name is mio LOL, im 16, seasian, and i use sheher pronounce ^.^
+<p align="center">
   𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 - resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, harry potter, yttd, jjk, csm, pokemon, jjba, bllk, hells paradise, witch hat atelier, creepypasta, theres others these r main ones!
 </p>
 
