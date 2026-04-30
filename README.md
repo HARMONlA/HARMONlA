@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  interests !!! resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, your turn to die, 
+  ***interests*** - resident evil, persona 3/4/5, final fantasy 7/10/13/15/16, yakuza, typology, marauders, your turn to die, 
 </p>
 
 :i hide n block freely, s
