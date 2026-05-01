@@ -19,7 +19,7 @@ sometimes im awkward and too shy to int first so sorry if i come off boring.. bu
 <p align="center">
 i can be either very esctatic or rlly dry randomly ITS USUALLY NOT PERSONAL 
 <p align="center">
-i say slurs i can reclaim, i also make sometimes mean or sexual jokes, and typically very sarcastic
+i say slurs i can reclaim, i also make sometimes mean or sexual jokes, and typically very sarcastic, plz lemme know if i should calm down w it
 <p align="center">
 i troll or roleplay jokingly 
 
